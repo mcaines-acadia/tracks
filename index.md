@@ -43,6 +43,14 @@ The following links provide recordings of our works for the semester as well as 
 *   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXTqC28N0odDn4IX-KIrPvIBlC2W19my6NfZac4A6n8YjQ?e=Rqp1Li){:target="_blank"}
 *   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EeocNRsVUndJlV8MVaIQ_m4BoyMCUc3XJHP4kT6txB_CMQ?e=jsePcH){:target="_blank"}
 
+### Ave Maria
+
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EaPUEr6AvI5Fk3_OQx3kwXABeoJ3UaHoJhMBsc5sBztA6g?e=ptIZak){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EYJI7uhAUe5Hn6FYAkpi3DABGa-fWmnh3x9TY8kcKf4pdA?e=q5xu3Q){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ESrwvqApFYFMs5jXu8vtvAkBOB9CXB702Uk-6eQtxnfdAQ?e=iNuenV){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVfH_1jcgKxEvej61j__u3oB3f_vyp0Ldi3CSNEHskk-ow?e=eaORwg){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUbqBXaSTIVInUopMSOGYysBE6DH2Vn5c1WEXMy9xWA6oQ?e=jSp4Id){:target="_blank"}
+
 ## Sing We Now of Christmas
 *   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUDcGPCsUJ5Oh8SKGxmwTyoBgqHVDYhG1iJyfB19nN7-DA?e=RP82ex){:target="_blank"}
 
