@@ -24,8 +24,11 @@ The following links provide recordings of our works for the semester as well as 
 
 ### The Shepherd
 
-*   [Balanced Voices](./another-page.html){:target="_blank"}
-*   Part recordings coming shortly
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQc826B-9IVBjSwRi0fdC1gBHHWtdo9aswlqguX2rXByDQ?e=xldecM){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUs69bOZrV1AgifOQNT6gZoBG2EKMFqhz9o4gOViY31_mg?e=YHiY9e){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWf68tb6XJhGtG1Pr-TlYdwBnAiuFuP-k3nWONiXM6nJUQ?e=AjWlTh){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ER2k-pENJ5VJrvG4HkMuMVwBMIkDaFsfUYSz-QnjTs5ZyQ?e=sfESzI){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ea02rE-lO7BLtFZWdSxrAIoByg1tU1yxKyzhXOFPdVWD1Q?e=MzmVRW){:target="_blank"}
 
 ### Healing Light
 
