@@ -61,5 +61,8 @@ The following links provide recordings of our works for the semester as well as 
 *   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERhOIP5YsPpNrM5ZL7R5idQBZXLzDMN5HS041aMBdfs0Yg?e=elcX6q){:target="_blank"}
 
 ## Painter of Wintertime
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXWhCoW4GTlNhQ27pXaigqQBPSVPGeeuVktWNV-ij-sU7w?e=Hjff2z
-){:target="_blank"}
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXWhCoW4GTlNhQ27pXaigqQBPSVPGeeuVktWNV-ij-sU7w?e=Hjff2z){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXE5bt-gantPhdK6zyEJkcUB6-RVZ5aK3mxsw6wa5hAmwg?e=cnkyVJ){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWNd8ReIsChCheRozMo0c9QBsn2M9HMfnBJ0HgwGVo5PEg?e=isw5by){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVjvJmmFL-BBnTy2-y9zZtoBefV0srMWyY3HRXEjPXPY5g?e=WD6hoF){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVo_qMB6q-FHg7ljUE6abbIBxFRDtZ90ThMSeYP7jVH3nw?e=7egoKg){:target="_blank"}
