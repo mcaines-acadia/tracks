@@ -66,3 +66,6 @@ The following links provide recordings of our works for the semester as well as 
 *   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWNd8ReIsChCheRozMo0c9QBsn2M9HMfnBJ0HgwGVo5PEg?e=isw5by){:target="_blank"}
 *   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVjvJmmFL-BBnTy2-y9zZtoBefV0srMWyY3HRXEjPXPY5g?e=WD6hoF){:target="_blank"}
 *   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVo_qMB6q-FHg7ljUE6abbIBxFRDtZ90ThMSeYP7jVH3nw?e=7egoKg){:target="_blank"}
+
+## Hark in 7/8
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EbCoQbgss0VAlA1cmbjaSccB2P0S_BPQ4z4EXa5V1wFxBw?e=NTRPV3){:target="_blank"}
