@@ -4,68 +4,56 @@ layout: default
 
 The following links provide recordings of our works for the semester as well as some voice predominant recordings. Please use these liberally as you internalize this music so you eventually memorize our required pieces. You are also able to download any tracks that you wish to use.
 
-## Karl Jenkins - Motets
- 
-### Cantate Domino
+### Flight Song
 
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EfspL82qEdJOn_zAZp7pVuoB-14USeVt3BodZnBEvPU51Q?e=Fd0Mr7){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERjcit1oQ1lIuZHV9ZXPhKwBCH4tl8JkPWv14qu2v3J6Yw?e=aEgCrC){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQANflO-aRZOofpQXE7mANEBAEg6EB0vLMbGg6dSNp4PuQ?e=J06MbA){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ER8KdVyDjTtJk1GTOx9dbAEBFk1Wojyjx26ORA77abQLeQ?e=ui7J98){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EV73C67BrU1Bk3FQjzFwz78BLIEaVERoB8jqBZcTVPauaw?e=5utwNZ){:target="_blank"}
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ESKMMoE9O2hOg8-e-x0pN2cBQ95MPAstZSB2on4NXcVB-g?e=MXk1BH){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Edx4C_YlW9FKtbzXjX0M1sgBZMQ33IVwlI44CElyI48tgQ?e=k3oowi){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVELzfTunWpHkkme6188QRwBmGdvEttERvmbb4Tg4N3xtQ?e=k7Mmsb){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EfbcuQtINChGqt-ENRpnBzEBAS2_xo39A1FDIvoduCHLZw?e=cUFNFz){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ETt9Ppc7eOBHgidLx5UgCqMBv7stutOmtGK04afsv48Mhw?e=FZkxcV){:target="_blank"}
 
-### Laudamus Te
+### Nothing Gold Can Stay
 
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXT072dLx5tOtxbO_D-sNR0BqBr1iL8Oaq2I7Ch8ksGN3Q?e=RPoqUu){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EdK1pZsWDzZEhuQWdqOjLOMBoXT7p99hscxl5s1eXhwMDw?e=2OvRxK){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EV48WM4YcupBpL96w7wINnwBYz6xdWbYOphiehVGqqnXGA?e=Ov2t0o){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ET-hXPB2MzVEgzwuIn2UVw8B0b4dLRd2CyVU951faWEjfA?e=I7MQP6){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EZgLU_J_kzdDt1F3lOgkpgUBIe67AtjToarwkBMV0AP8zQ?e=fspvvV){:target="_blank"}
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWAffcq7_olImzCfu4ibCJYBr2sXuN5F7bicwKwGemrgNQ?e=WQmxPQ){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EX_5_tsTn_tBj7ONX3MHhpcBnbCXqzAYsqeNHsVCncutDg?e=u3Vsf8){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EedKrGC_7WhKrK7Kru1vU2YB9w7SrdjZaxgKucHjGpW67g?e=cmxf65){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Eb4AP4HRnLtGifBcLwuMmQYB2GkM_fhpe_SFIY6yB1oByQ?e=5Pxbsz){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERfTu07uHLVPhj42DVLod_QBcZOozIx2r0eIu2HiodLMjA?e=ewkeUD){:target="_blank"}
 
-### The Shepherd
+### Stopping By The Woods
 
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQc826B-9IVBjSwRi0fdC1gBHHWtdo9aswlqguX2rXByDQ?e=xldecM){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUs69bOZrV1AgifOQNT6gZoBG2EKMFqhz9o4gOViY31_mg?e=YHiY9e){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWf68tb6XJhGtG1Pr-TlYdwBnAiuFuP-k3nWONiXM6nJUQ?e=AjWlTh){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ER2k-pENJ5VJrvG4HkMuMVwBMIkDaFsfUYSz-QnjTs5ZyQ?e=sfESzI){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ea02rE-lO7BLtFZWdSxrAIoByg1tU1yxKyzhXOFPdVWD1Q?e=MzmVRW){:target="_blank"}
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQvSAn7hvUVFoWY-HBow0o8BemNU2k_PH10hqhPYdlZ7hQ?e=6S53PR){:target="_blank"}
+*   [Soprano Predominant](){:target="_blank"}
+*   [Alto Predominant](){:target="_blank"}
+*   [Tenor Predominant](){:target="_blank"}
+*   [Bass Predominant](){:target="_blank"}
 
-### Healing Light
+### Dorchester Canticles
 
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXiToUYJKf1JrdM-eVQ_QqgBUgzhMsl8L9UqZHqx8FzSmg?e=d0i0un){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUIxoIXc32pCoUFslbXqBdMBdP2LpzDEQfJTe0EJH5kk1g?e=ccjQZJ){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EallRhTX_8lOroQmwYW6_0cBFg2QhitLpH28148JfslDZQ?e=vjbDVw){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUark_SoEZlKlHw-3JWow6cB_38udiFTcGQErJY_yTiCxQ?e=0cFkk7){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ef0KcAIfcAVBlwU0e85scAABBR3dByp5dem8hSsjyPTLBA?e=ZdRYEN){:target="_blank"}
+*   [Movement 1 - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EZyOWiiabFVBi5wwyDKT3GEBcYE3tuhTcaXruHnctV3NTQ?e=E1dQnd){:target="_blank"}
+*   [Movement 1 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EZyOWiiabFVBi5wwyDKT3GEBcYE3tuhTcaXruHnctV3NTQ?e=2X05bh){:target="_blank"}
+*   [Movement 2 - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQX-oDIMH7xEke2biQuiSdIBJfWCHNekQhTGRa6P4dVZmA?e=H8bSPx){:target="_blank"}
+*   [Movement 2 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUOw4xOAhBJHnR2Z9L0SuWgBZglR23v7xXjCOfPOKsOuow?e=X4KDp6){:target="_blank"}
+*   [Rehearsal Letter A to B - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ES3bIYeCFZVLvFbeeaQUjSoByUArXvJ4-jAR7Rrv_rI3Rg?e=2JBVgB){:target="_blank"}
+*   [Rehearsal Letter A to B - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWQzX4_vQpBFi0f6jo3NfWMBTpma-E8jdvvOnFuf7QcF3Q?e=dGoCoY){:target="_blank"}
+*   [Rehearsal Letter B to D - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Edi59vxV_QpJmtotcpRB26sBWq2sZWUFkdvWY_8Tf2dh6w?e=RgewdN){:target="_blank"}
+*   [Rehearsal Letter B to D - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXR5_QTecn5HoDkXhpIiOKABeg49cK4_LhRTBKEGjPXSCA?e=9UbbZZ){:target="_blank"}
+*   [Rehearsal Letter D to E - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERvlE484GylNiTS0T4a8sPkB06PTOIzBZ2iSbTTvAQ3Jng?e=ydK2Jn){:target="_blank"}
+*   [Rehearsal Letter D to E - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Eea2qdK6JxBPonn6eRiTGHwB4XGNd5OSVJmc7QCjz2Pf0g?e=MWv3zO){:target="_blank"}
+*   [Rehearsal Letter E to G - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ETcbBNjz5BZKpkTOqXEOx6sB7cg3KjqUMelGzSToPsqAHg?e=p6M45D){:target="_blank"}
+*   [Rehearsal Letter E to G - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EZNQb01b6DRGhL3nnqrjN60BvycjK0dxhB-zfYNgwSLh3g?e=tbq385){:target="_blank"}
+*   [Rehearsal Letter H to I - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVc7JJZiyPpMnindxq4aMwgBXtbp7ptMwr6ErFGL8x-7Yw?e=8rwuna){:target="_blank"}
+*   [Rehearsal Letter H to I - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWuODIiAdOdMnlCC1UsPbPkBJIAs_IuYNO3CBQpR--CS4g?e=4Hwrdv){:target="_blank"}
+*   [Rehearsal Letter J to End of Mvt 1 - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ETYPREai7xVNu1m20FC7zXwBEir3_2uK4ODVa76pXajWEw?e=BlNVSg){:target="_blank"}
+*   [Rehearsal Letter J to End of Mvt 1 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EaXKy3GhcOVGulvLIpCeFAEBJvEp7zi9XxieqTUireIAQA?e=RYeVJT){:target="_blank"}
+*   [Rehearsal Letter O to End of Mvt 2 - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ER3f3pgHDt9BglJodAgZWtsBLS_EFS7afv_LIc_4OAwdrQ?e=UXZzQP){:target="_blank"}
+*   [Rehearsal Letter O to End of Mvt 2 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWy0HR1lYW5Ms3nmqdVwQnkBfaRdh5jOQeu7cwJECJaXjA?e=OyENLb){:target="_blank"}
 
-### Lullay
 
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ebwv_4sCYepHmd-fwGCas8QBfT8ZY3OWoNKbE7O_dQNVGw?e=QWF6BA){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERhEb3t3cWRCt5sq9Rc8OVsBfU18-JU9c3AoXBg-Gyabug?e=ghxrcw){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ef5-klKvubZBnsoSZdp1OlABoNtawv99dwQTH0xoJiHuQw?e=4yEJi2){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXTqC28N0odDn4IX-KIrPvIBlC2W19my6NfZac4A6n8YjQ?e=Rqp1Li){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EeocNRsVUndJlV8MVaIQ_m4BoyMCUc3XJHP4kT6txB_CMQ?e=jsePcH){:target="_blank"}
+### Sing You Home
 
-### Ave Maria
-
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EaPUEr6AvI5Fk3_OQx3kwXABeoJ3UaHoJhMBsc5sBztA6g?e=ptIZak){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EYJI7uhAUe5Hn6FYAkpi3DABGa-fWmnh3x9TY8kcKf4pdA?e=q5xu3Q){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ESrwvqApFYFMs5jXu8vtvAkBOB9CXB702Uk-6eQtxnfdAQ?e=iNuenV){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVfH_1jcgKxEvej61j__u3oB3f_vyp0Ldi3CSNEHskk-ow?e=eaORwg){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUbqBXaSTIVInUopMSOGYysBE6DH2Vn5c1WEXMy9xWA6oQ?e=jSp4Id){:target="_blank"}
-
-## Sing We Now of Christmas
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUDcGPCsUJ5Oh8SKGxmwTyoBgqHVDYhG1iJyfB19nN7-DA?e=RP82ex){:target="_blank"}
-
-## Song for a Winter's Night
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERhOIP5YsPpNrM5ZL7R5idQBZXLzDMN5HS041aMBdfs0Yg?e=elcX6q){:target="_blank"}
-
-## Painter of Wintertime
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXWhCoW4GTlNhQ27pXaigqQBPSVPGeeuVktWNV-ij-sU7w?e=Hjff2z){:target="_blank"}
-*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EXE5bt-gantPhdK6zyEJkcUB6-RVZ5aK3mxsw6wa5hAmwg?e=cnkyVJ){:target="_blank"}
-*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWNd8ReIsChCheRozMo0c9QBsn2M9HMfnBJ0HgwGVo5PEg?e=isw5by){:target="_blank"}
-*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVjvJmmFL-BBnTy2-y9zZtoBefV0srMWyY3HRXEjPXPY5g?e=WD6hoF){:target="_blank"}
-*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVo_qMB6q-FHg7ljUE6abbIBxFRDtZ90ThMSeYP7jVH3nw?e=7egoKg){:target="_blank"}
-
-## Hark in 7/8
-*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EbCoQbgss0VAlA1cmbjaSccB2P0S_BPQ4z4EXa5V1wFxBw?e=NTRPV3){:target="_blank"}
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVwiZpm95j1AtJXlnuxXiuYBxA3twe--MttbxXY4hv6zcA?e=xKGhVc){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EVwA7mh-c7RGo4RRKN59B0kB4vleFfgaizZ4l6GZ8zUxDQ?e=L2QGcM){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EbxXbH0Kv6ZCnMmHOzLjreQB2M2SjBs-3AeilY-DMf2VPA?e=e35Git){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ETgQSedQW9xHpqJyQVek2AQBw0fj8rYwtaSQg3s8aPoRsg?e=CUjuHZ){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EWGy9p8HD-5Fm_EwX3stc4cBSJ2dq2qWOivUgOexeQLcIQ?e=Jh5Fsq){:target="_blank"}
