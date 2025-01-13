@@ -23,10 +23,10 @@ The following links provide recordings of our works for the semester as well as 
 ### Stopping By The Woods
 
 *   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQvSAn7hvUVFoWY-HBow0o8BemNU2k_PH10hqhPYdlZ7hQ?e=6S53PR){:target="_blank"}
-*   [Soprano Predominant](){:target="_blank"}
-*   [Alto Predominant](){:target="_blank"}
-*   [Tenor Predominant](){:target="_blank"}
-*   [Bass Predominant](){:target="_blank"}
+*   [Soprano Predominant] Coming soon
+*   [Alto Predominant] Coming soon
+*   [Tenor Predominant] Coming soon
+*   [Bass Predominant] Coming soon
 
 ### Dorchester Canticles
 
