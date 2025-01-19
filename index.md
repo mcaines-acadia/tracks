@@ -31,7 +31,7 @@ The following links provide recordings of our works for the semester as well as 
 ### Dorchester Canticles
 
 *   [Movement 1 - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EZyOWiiabFVBi5wwyDKT3GEBcYE3tuhTcaXruHnctV3NTQ?e=E1dQnd){:target="_blank"}
-*   [Movement 1 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EZyOWiiabFVBi5wwyDKT3GEBcYE3tuhTcaXruHnctV3NTQ?e=2X05bh){:target="_blank"}
+*   [Movement 1 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EReh03vtoaRLveU5QyFhmBoBXqHcTxqZddSafR8IcgRo9g?e=NuDGCZ){:target="_blank"}
 *   [Movement 2 - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQX-oDIMH7xEke2biQuiSdIBJfWCHNekQhTGRa6P4dVZmA?e=H8bSPx){:target="_blank"}
 *   [Movement 2 - Reduced Tempo for Practice](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUOw4xOAhBJHnR2Z9L0SuWgBZglR23v7xXjCOfPOKsOuow?e=X4KDp6){:target="_blank"}
 *   [Rehearsal Letter A to B - Performance Tempo](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ES3bIYeCFZVLvFbeeaQUjSoByUArXvJ4-jAR7Rrv_rI3Rg?e=2JBVgB){:target="_blank"}
