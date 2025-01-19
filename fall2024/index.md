@@ -1,7 +1,6 @@
 ---
 layout: default
 ---
-
 ## Fall 2024
 
 The following links provide recordings of our works for the semester as well as some voice predominant recordings. Please use these liberally as you internalize this music so you eventually memorize our required pieces. You are also able to download any tracks that you wish to use.
