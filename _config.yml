@@ -3,3 +3,5 @@ description: Links Below
 show_downloads: true
 google_analytics:
 theme: jekyll-theme-midnight
+baseurl: "/tracks"
+permalink: /:path/
