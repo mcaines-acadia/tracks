@@ -20,6 +20,17 @@ The following links provide recordings of some of our works for the semester as 
 *   [Baritone (Bass 1) Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EcDNPfydbbpEl7z-P02W6E0BdUmv7UXK7ywtgKiyqQEMQw?e=zqrHyx){:target="_blank"}
 *   [Bass 2 Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EQX0y_49A-ZMiI8wqXKg04MBNrX40oNV272j6bLPdbX3dQ?e=5Bnh17){:target="_blank"}
 
+
+## This Christmastide
+
+*   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EUDcnCd3oKZFuRTnbW4zXfYBXV4rrpMwOKJcsq4-AdQNmg?e=4aeWbY){:target="_blank"}
+*   [Soprano Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERVtEayUiZpDk-3_BC1RHp0BZ1l-ahFEPnE124rUbhzOWw?e=ATmTd6){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Eem9znVXu7xAgWH1yxMJi0MBbe302IQLE23xPf8jX5MzEw?e=uE0UBm){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/EYPiQ42OdqBJrtHAe8MI48sB12GxjcNZteFfUqM5kFfpag?e=itRJ8i){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ed_G_W2wj_ZHrbeqPpw9ZZEBqnH4O8DyU0CmfIj262GQyw?e=17W5Sw){:target="_blank"}
+*   [Accompaniment Only](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ea7MU9QiDcpPjOmJaJLWBjsB90faTikzIPRoqWk98HI3kg?e=RRmaie){:target="_blank"}
+
+
 ## O Little Town of Bethelehem
 
 *   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERT8sUwiCuNJrXrDhBW7wUgB87pVRyX44XsktthsfcGbLQ?e=v4rjU5){:target="_blank"}
