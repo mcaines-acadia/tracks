@@ -29,6 +29,11 @@ The following links provide recordings of some of our works for the semester as 
 *   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ed_G_W2wj_ZHrbeqPpw9ZZEBqnH4O8DyU0CmfIj262GQyw?e=17W5Sw){:target="_blank"}
 *   [Accompaniment Only](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/Ea7MU9QiDcpPjOmJaJLWBjsB90faTikzIPRoqWk98HI3kg?e=RRmaie){:target="_blank"}
 
+## The Very Best Time of Year (SATB)
+
+*   [Balanced Voices](https://www.youtube.com/watch?v=NxlnmoNSAn4){:target="_blank"}
+*   [Practice Parts - Choralia.net](https://www.choralia.net/rt14mp3/rt14mp3en.htm){:target="_blank"}
+
 ## O Little Town of Bethelehem (SATB)
 
 *   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/ERT8sUwiCuNJrXrDhBW7wUgB87pVRyX44XsktthsfcGbLQ?e=v4rjU5){:target="_blank"}
