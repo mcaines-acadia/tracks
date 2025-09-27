@@ -46,7 +46,9 @@ The following links provide recordings of some of our works for the semester as 
 
 *   [Balanced Voices - Video](https://www.youtube.com/watch?v=OkYjG1kk4nc){:target="_blank"}
 
-
+## Tàladh Chriosda (SATB)
+*   [Balanced Voices - Video](https://youtu.be/hkKnY6tGfYY?t=5129){:target="_blank"}
+*   [Pronunciation Guide (first two verses)](https://www.youtube.com/watch?v=5z6JPeEwxRU){:target="_blank"}
 
 <!-- ## XXXXXXXXX
 
