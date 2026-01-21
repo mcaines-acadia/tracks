@@ -34,7 +34,7 @@ Original chant is provided for context/info...this is the original melody sung i
 *   [Recording - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBL-qXBnFQkTK5PR4dntug8AdAJ7gvF_e__Xxdoa433wIo?e=KqomG6){:target="_blank"}
 
 
-### Dancing Tree (coming soon)
+### Dancing Tree
 
 *   [1 - Stone in the Water & Foxglove](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBXNNKZDfvgSICnilz934zzAbn5iLsQl1IzVztrzgbPPUk?e=fQSPZC){:target="_blank"}
 *   [1 - Stone in the Water & Foxglove - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCZW9y8yLAURpLWNK26KVbRAdGLGl1eDFQkWkwz0sr1z2o?e=neCefZ){:target="_blank"}
