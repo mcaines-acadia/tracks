@@ -36,5 +36,24 @@ Original chant is provided for context/info...this is the original melody sung i
 
 ### Dancing Tree (coming soon)
 
+*   [1 - Stone in the Water & Foxglove](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBXNNKZDfvgSICnilz934zzAbn5iLsQl1IzVztrzgbPPUk?e=fQSPZC){:target="_blank"}
+*   [1 - Stone in the Water & Foxglove - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCZW9y8yLAURpLWNK26KVbRAdGLGl1eDFQkWkwz0sr1z2o?e=neCefZ){:target="_blank"}
 
+*   [2 - In My Garden](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAOXV9PHj6qQpHwM4ELFEpUAfQlnvbNvCmEhsE5wpMqRCs?e=Bhcz9Q){:target="_blank"}
+*   [2 - In My Garden - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQC8gRrjixcMR51k2Y-mQ2fBARu1F9gFZ9piU00m1z2-ARQ?e=skxLZJ){:target="_blank"}
+
+*   [3 - Dandelion](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAlYtVzeYOGS7O70-WTJ3SwAcUZ0aaHJ49oL1eU6sVAfvA?e=liJmPO){:target="_blank"}
+*   [3 - Dandelion - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQALcsmW6ClCSZubrG_ZraOhAcEQhQNMlJAlbvdhVhd3lGQ?e=TJ9Bs0){:target="_blank"}
+
+*   [4 - Daniel Brent](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAIU_NTva00SYbaKAmokp4xAfntAdQQHNYluhQaF3sBxhg?e=mMDi4D){:target="_blank"}
+*   [4 - Daniel Brent - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDVNARsBXrRTpVVQkzJVHikASER7kuBx2Jny0I2iWUhf0o?e=sksD5p){:target="_blank"}
+
+*   [5 - Spin Me a Web, Spider](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCUoX6j9O5cTJCMitmDNRYWARwnGDX6remjI8oaac8n1jg?e=LmwFyc){:target="_blank"}
+*   [5 - Spin Me a Web, Spider - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCJY8xCR0jQS7lgIAUqusPVAaj9NLk78grPnV6b0lByC8w?e=vMLX5b){:target="_blank"}
+
+*   [6 - At Candlemas](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQA-VFEbLlsZQ4SrsbXm17aIAfB61LoeyEfJVkwJNFQyqpg?e=STkVPH){:target="_blank"}
+*   [6 - At Candlemas - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCw1IBc1SnSQI8Cgh-wHSeJAa0jTxPxdB50Ge2MFSyAgT4?e=NyjejD){:target="_blank"}
+
+*   [7 - I am the song](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBSHmBmDzgyTqqQKO8AWmR6AVND7u0d7yQHrT-rX8aQbQo?e=bGqwPv){:target="_blank"}
+*   [7 - I am the song - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAETFiDR_r5TKfh9_XP899KAY9_VPlBIlVqiwq9mE0dTew?e=LPBKDQ){:target="_blank"}
 
