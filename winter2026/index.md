@@ -38,22 +38,49 @@ Original chant is provided for context/info...this is the original melody sung i
 
 *   [1 - Stone in the Water & Foxglove](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBXNNKZDfvgSICnilz934zzAbn5iLsQl1IzVztrzgbPPUk?e=fQSPZC){:target="_blank"}
 *   [1 - Stone in the Water & Foxglove - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCZW9y8yLAURpLWNK26KVbRAdGLGl1eDFQkWkwz0sr1z2o?e=neCefZ){:target="_blank"}
+*   [1 - Stone in the Water - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQA5uTSouyfsRYEKtXMjdX8ZAYt1cR16ba1sOwv2kRgWfvI?e=NQ3xcZ){:target="_blank"}
+*   [1 - Stone in the Water - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQD5G3McKGduR4Br8TJtCwDlAdu1J0K0oD2a1ON0Ncwz7uM?e=35rFVh){:target="_blank"}
+*   [1 - Stone in the Water - Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQD5YSUZHLRXR5sNZblT_37DARAYc5p-LaIgsLEM60SPgjA?e=JPiwM1){:target="_blank"}
+*   [1 - Stone in the Water - Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQD5bL0tIwlrRqbzRzx_YIWHAcDmltcsfyeLyHO175Ev2VA?e=BvUsZI){:target="_blank"}
+
 
 *   [2 - In My Garden](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAOXV9PHj6qQpHwM4ELFEpUAfQlnvbNvCmEhsE5wpMqRCs?e=Bhcz9Q){:target="_blank"}
 *   [2 - In My Garden - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQC8gRrjixcMR51k2Y-mQ2fBARu1F9gFZ9piU00m1z2-ARQ?e=skxLZJ){:target="_blank"}
+*   [2 - In My Garden - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQASTpA0-hTORJrYM0EKOWGoAfgWFk96v_vMAO8huWOTCgE?e=xOUEJ3){:target="_blank"}
+*   [2 - In My Garden - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBuzQ8-PwoXT4iPRDjzFcEIAcw33wuWvuQOntNkVJlnJSY?e=PI8qrT){:target="_blank"}
+*   [2 - In My Garden - Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCt1HL1ESVxSo2sW3DZfiH3ARi_Ey_JIBHyS8MBX9n8NHI?e=xyxecd){:target="_blank"}
+*   [2 - In My Garden - Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDZ03hpk1vST5N6S3C_WyYPAR-07Mb1Z2yW-CT8f4vOjp4?e=ERG3q6){:target="_blank"}
 
 *   [3 - Dandelion](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAlYtVzeYOGS7O70-WTJ3SwAcUZ0aaHJ49oL1eU6sVAfvA?e=liJmPO){:target="_blank"}
 *   [3 - Dandelion - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQALcsmW6ClCSZubrG_ZraOhAcEQhQNMlJAlbvdhVhd3lGQ?e=TJ9Bs0){:target="_blank"}
+*   [3 - Dandelion - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDMybFYiYFRQLNIH2o-0bNvARBrFLx6dyYzB4Ow8duO6IE?e=hk1WAr){:target="_blank"}
+*   [3 - Dandelion - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDOzMPTG2ghQ5fAKcAkROfsAT04C8V-6HF9atZDrkZ8WXk?e=XVkQcE){:target="_blank"}
 
 *   [4 - Daniel Brent](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAIU_NTva00SYbaKAmokp4xAfntAdQQHNYluhQaF3sBxhg?e=mMDi4D){:target="_blank"}
 *   [4 - Daniel Brent - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDVNARsBXrRTpVVQkzJVHikASER7kuBx2Jny0I2iWUhf0o?e=sksD5p){:target="_blank"}
+*   [4 - Daniel Brent - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDkphVd6-dCTq44jSfT1U4QAQYxNcvN-sQgbG9oAuEZlyY?e=bLvvtm){:target="_blank"}
+*   [4 - Daniel Brent - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCYPL_8L1lwR7GnYikfr1rcAf6LcQ7fRWmxJf01w5sdorw?e=YMBucy){:target="_blank"}
+*   [4 - Daniel Brent - Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAzOXafGjtWTrlGNZ9lKn-gAVGHuBMkOe1WJkmstaAtCkk?e=yaPqpp){:target="_blank"}
+*   [4 - Daniel Brent - Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBMXL6dj-wXQ5Xe2mYfocDZAalS4OOHnhX7xJhkbUTbEPA?e=T1TSN6){:target="_blank"}
 
 *   [5 - Spin Me a Web, Spider](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCUoX6j9O5cTJCMitmDNRYWARwnGDX6remjI8oaac8n1jg?e=LmwFyc){:target="_blank"}
 *   [5 - Spin Me a Web, Spider - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCJY8xCR0jQS7lgIAUqusPVAaj9NLk78grPnV6b0lByC8w?e=vMLX5b){:target="_blank"}
+*   [5 - Spin Me a Web, Spider - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBOnfUpr4hTS6Q9SZ_VHIOdAXEaKZCdrlmHNbjkvoCjrRs?e=NwgPiS){:target="_blank"}
+*   [5 - Spin Me a Web, Spider - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBCChMI_rg2TbdxYZWDE2JWAffRy5GcfIp8MaTdMDvC2HE?e=lo8Cgc){:target="_blank"}
+*   [5 - Spin Me a Web, Spider - Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDADA6ov8rqRoSn4xMRRjT2AUKAvcfe9sEAEUHQ8RkjS3E?e=KlodhO){:target="_blank"}
+*   [5 - Spin Me a Web, Spider - Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAncUsBk0Q_Sbob9yrJFRW6Aejhadd1uX0ThsYkgzsrok0?e=aWyjEP){:target="_blank"}
 
 *   [6 - At Candlemas](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQA-VFEbLlsZQ4SrsbXm17aIAfB61LoeyEfJVkwJNFQyqpg?e=STkVPH){:target="_blank"}
 *   [6 - At Candlemas - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCw1IBc1SnSQI8Cgh-wHSeJAa0jTxPxdB50Ge2MFSyAgT4?e=NyjejD){:target="_blank"}
+*   [6 - At Candlemas - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCkFUwxzGQpQa85iuCiloVcATLmg87lytQRTEBzqnxCldU?e=0Q8fXB){:target="_blank"}
+*   [6 - At Candlemas - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAUaK8EWyNHQYm3LbMX1TtPAcZ2_yeVlUiY1cR9DVP-ZJw?e=VTdFlv){:target="_blank"}
+*   [6 - At Candlemas - Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBLf-c0YaceQJY0SxDnpNaXAROYKlNejbOn14pkiHobvFc?e=SHM93l){:target="_blank"}
+*   [6 - At Candlemas - Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDybDEW8inUSa7_2TAuROlkAZN5-3J_l1GPXieVWL-bfgc?e=n0N5vB){:target="_blank"}
 
 *   [7 - I am the song](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQBSHmBmDzgyTqqQKO8AWmR6AVND7u0d7yQHrT-rX8aQbQo?e=bGqwPv){:target="_blank"}
 *   [7 - I am the song - 80% speed](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAETFiDR_r5TKfh9_XP899KAY9_VPlBIlVqiwq9mE0dTew?e=LPBKDQ){:target="_blank"}
+*   [7 - I am the song - Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQB-5zzOorMjSbn4w4wZrgUMAZ9PJieG0EcLymjvV1Wfs1s?e=0TyvTB){:target="_blank"}
+*   [7 - I am the song - Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAEC4PJVwnLQKcxvcz-iz8NAdv8NjwM5mwi5el8TWZwkRU?e=NjkLjm){:target="_blank"}
+*   [7 - I am the song - Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCbGMsau_N7RrV77rQk9A3EASoShH8zHnr_dDx6EP90NgA?e=cr079k){:target="_blank"}
+*   [7 - I am the song - Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQB1LgaAJ6gHQ6aW-c_xe7zOAWOyWuyWhqfdxeuVrDFFU8A?e=lrjwER){:target="_blank"}
 
