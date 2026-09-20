@@ -72,6 +72,11 @@ The following links provide recordings of our works for the semester as well as 
 ### White Winter Hymnal - Pentatonix (arr. Billingsley)
 
 *   [Balanced Voices](https://www.youtube.com/watch?v=WTRvDxwBi24){:target="_blank"}
+*   [Soprano 1 Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAw9CajMxtoSbqdt7R1Y6XPAfVoAu9gY4krovBiw3TX2n0?e=D4w9mg){:target="_blank"}
+*   [Soprano 2 Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCOOZ9n5SR5R40AK1ncktRpATJbpM_beufiYAJLhWC1nzg?e=c99Vta){:target="_blank"}
+*   [Alto Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCcChDMbgpiQagLjiyiusrUAQB-5x7T0NaknCbQvFqPBUM?e=OAo32t){:target="_blank"}
+*   [Tenor Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAGx78lzpe4R6SpF6HMtGCyAf1eGlesDJycbefbERMAezU?e=Tz3t6Z){:target="_blank"}
+*   [Bass Predominant](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQC69GkM_k7zQpoFz5XCSkOiAff6CWkaBcmG1E8ro8OqvaY?e=M81m3w){:target="_blank"}
 
 
 
