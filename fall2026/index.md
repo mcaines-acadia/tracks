@@ -22,6 +22,10 @@ The following links provide recordings of our works for the semester as well as 
 ### En natus est Emanuel - Michael Praetorius
 
 *   [Balanced Voices](https://www.youtube.com/watch?v=w4iar8aK6p4){:target="_blank"}
+*   [Soprano Predominant](https://stcpress.org/miscellaneous/en_natus/en_natus_cantus_emphasized.mp3){:target="_blank"}
+*   [Alto Predominant](https://stcpress.org/miscellaneous/en_natus/en_natus_altus_emphasized.mp3){:target="_blank"}
+*   [Tenor Predominant](https://stcpress.org/miscellaneous/en_natus/en_natus_tenor_emphasized.mp3){:target="_blank"}
+*   [Bass Predominant](https://stcpress.org/miscellaneous/en_natus/en_natus_bassus_emphasized.mp3){:target="_blank"}
 
 ### Winter - arr. Andy Beck
 
