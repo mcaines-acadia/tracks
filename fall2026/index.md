@@ -45,8 +45,7 @@ The following links provide recordings of our works for the semester as well as 
 *   [Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDGOKIoqgT5TbHpqVMIjDymAa7kZIbPjx3ZEBvFrHn97Cw?e=csXssq){:target="_blank"}
 *   [Accompaniment Only](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAs6tIEXuPoTIxomiuTWZn5Adq_ugdrQqB9nZ_yENF3nZ8?e=6mM2qt){:target="_blank"}
 
-*   [All Voices except Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/
-michael_caines_acadiau_ca/IQAJrr04QmFlT51vQjecqb5RARHgZRN-eKvstkG2vE7ug24?e=SgfuIt){:target="_blank"}
+*   [All Voices except Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAJrr04QmFlT51vQjecqb5RARHgZRN-eKvstkG2vE7ug24?e=SgfuIt){:target="_blank"}
 *   [All Voices except Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCQDK_6t_VyTZ4-vWpleltTAZU0Fd6Okdo7FUXUmavuszk?e=xZpybS){:target="_blank"}
 *   [All Voices except Tenor](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQA_q8imkBeOQYT4XpIW9dsEAY3fZkBd6xPYnzX_IYk8eoc?e=uXzV5q){:target="_blank"}
 *   [All Voices except Bass](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQANv-_y2WXOQr4W44T21ENjAQwBXb6jiaEQJ5xLW_4DlHs?e=TipkL8){:target="_blank"}
