@@ -2,4 +2,4 @@
 layout: default
 ---
 
-- [Winter 2026](https://mcaines-acadia.github.io/tracks/winter2026/)
+- [Fall 2026]({{ site.baseurl }}/fall2026/)
