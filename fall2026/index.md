@@ -31,6 +31,7 @@ The following links provide recordings of our works for the semester as well as 
 
 *   [Balanced Voices](https://www.youtube.com/watch?v=0Gbbe9OaLUw){:target="_blank"}
 *   [Accompaniment Only](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDIzS9LK7VqR4zuK2lWkrzWAVlMwYlm9z5G9OK0PqJm9z4?e=RETkbc){:target="_blank"} (listeners are encouraged to sing along on their own without vocal assistance)
+*   [Balanced Voices with Score](https://www.youtube.com/watch?v=0Gbbe9OaLUw){:target="_blank"}
 
 ### Carol of the Stranger - Abbie Betinis
 
