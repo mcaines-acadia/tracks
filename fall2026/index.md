@@ -44,6 +44,8 @@ The following links provide recordings of our works for the semester as well as 
 
 ### On this Silent Night - Sarah Quartel
 
+*   [Balanced with Score - YouTube](https://www.youtube.com/watch?v=kVeUiAfBvy0){:target="_blank"}
+
 *   [Balanced Voices](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQAI9vuOBx2nRq8h6nJLH7-aAfnc9FixxQ4QNJzeamxzqng?e=KEkgP5){:target="_blank"}
 *   [Soprano](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQDOQcmQwatkQL2kI2_ZsHzrAQZUm4iydPqittU2p9lBVxs?e=qCjAb0){:target="_blank"}
 *   [Alto](https://acadiau-my.sharepoint.com/:u:/g/personal/michael_caines_acadiau_ca/IQCJ73x8_ighQYwvVyeGl30TAYA-GuBTG9JdT6z0SM6OPVY?e=CQAU66){:target="_blank"}
